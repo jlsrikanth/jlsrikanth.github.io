@@ -1,2 +1,0 @@
-jlsrikanth.github.io
-====================
